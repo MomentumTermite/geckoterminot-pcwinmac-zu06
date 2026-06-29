@@ -1,4 +1,4 @@
-# 
+# Natif geckoterminal sniper bot extensions pour Mac OS | Nouveau geckoterminal sniper bot extensions pour PC Windows. Avec intégration du routeur DEX et faible latence — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
